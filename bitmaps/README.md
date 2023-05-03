@@ -1,0 +1,1 @@
+Aquí imágenes raster
